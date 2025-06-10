@@ -1,6 +1,6 @@
 # 👋 Hi, I'm brilz929!
 
-🌱 **Front-End Student | Nurse | Aspiring Developer**
+🌱 **Fullstack Student | Registered Nurse | Aspiring Developer**
 
 ---
 

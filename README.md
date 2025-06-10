@@ -1,4 +1,4 @@
-# 👋 Hi, I'm brilz929!
+# 👋 Hi, I'm Briana!
 
 🌱 **Fullstack Student | Registered Nurse | Aspiring Developer**
 
